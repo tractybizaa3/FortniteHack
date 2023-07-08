@@ -15,7 +15,7 @@ This project was made for educational purposes and personal use. By using our se
 
 ## <a id="showcase"></a>📌 〢 Showcase
 
-![maxresdefault](https://www.esports.net/wiki/guides/fortnite-cheats/)
+![maxresdefault](https://i.ytimg.com/vi/M5qHVdZwq_U/maxresdefault.jpg)
 
 
 ---
